@@ -1,0 +1,1 @@
+# 6._Research-of-a-survey-of-customers-of-a-telecommunications-company
